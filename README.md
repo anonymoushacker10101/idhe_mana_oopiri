@@ -1,2 +1,3 @@
 # idhe_mana_oopiri
-Neek kaavalsindhi naa dhaggira undhiiii
+Aalasyam aindhaa aacharya puthraa!!
+Em parledhu oopiri peelchuko maahishmathiii, neek kaavalsindhi naa dhaggira undhiiii!!
